@@ -1,0 +1,1 @@
+# ppl-cc-ti1-2024-1-g5---Dificuldade-em-otimizar-o-tempo
